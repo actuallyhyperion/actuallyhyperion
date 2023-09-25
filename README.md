@@ -2,7 +2,7 @@
 - 👀 I’m interested in Minecraft coding and stuff, as well as AI development.
 - 🌱 I’m currently learning Java and Python 3 advanced
 - 💞️ I’m looking to collaborate on Minecraft projects
-- 📫 How to reach me: @me or superanimegamer@duck.com
+- 📫 How to reach me: @me or bleugamer92@gmail.com
 
 <!---
 RaenzyIsDev/RaenzyIsDev is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
