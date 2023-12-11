@@ -5,8 +5,7 @@
 - 📫 How to reach me: @me or bleugamer92@gmail.com
 
 ![gplv3-127x51](https://github.com/RaenzyIsDev/RaenzyIsDev/assets/132928035/c085e181-603f-43dc-a556-39147a2281ee)
-![image](https://github.com/RaenzyIsDev/RaenzyIsDev/assets/132928035/057ef83d-0121-4837-a2e0-d69ce2207aa3)
-![image](https://github.com/RaenzyIsDev/RaenzyIsDev/assets/132928035/52f30c19-35a1-42ae-8bdb-cc7226b5afcf)
+![image](https://github.com/RaenzyIsDev/RaenzyIsDev/assets/132928035/2817679b-ede4-4885-9758-f981cde12dc6)
 
 
 
